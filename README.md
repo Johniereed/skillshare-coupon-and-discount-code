@@ -131,7 +131,7 @@ Skillshare is a fantastic platform for learning new skills, but there’s no nee
 
 Whether you’re looking for Skillshare discount codes for your first month, a promo code for an extended trial, or a coupon for a student discount, there are plenty of options to choose from.
 
-[{Get 50% OFF Skillshare Deal}](https://bit.ly/4dijtWD)
+[{Get 50% OFF Skillshare Discount}](https://bit.ly/4dijtWD)
 
 With this guide, you now have all the tools you need to get the best deals and start learning without breaking the bank. Happy learning, and don’t forget to keep an eye out for those amazing Skillshare promos!
 
