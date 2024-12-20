@@ -1,4 +1,4 @@
-# SkillShare Coupons & Discount Codes | 50% Off Promo Deals
+# SkillShare Coupon & Discount Code | 50% Off Promo Deals
 
 Looking for [Skillshare coupons](https://bit.ly/4dijtWD) in 2025?
 
