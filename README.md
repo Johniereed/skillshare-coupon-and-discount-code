@@ -4,7 +4,7 @@ Looking for [Skillshare coupons](https://bit.ly/4dijtWD) in 2025?
 
 Now, you can get Skillshare with a flat 50% discount. Why pay in full price when you can get it for half the price, with our Skillshare coupon codes and discount offers.
 
-Following are the latest and verified Skillshare Coupon codes that you can take advantage of, choose your Skillshare Promo code quickly all these discount deals are a limited-time offer.
+Following are the latest and verified [Skillshare Coupon codes](https://johniereed.github.io/skillshare-coupon/) that you can take advantage of, choose your Skillshare Promo code quickly all these discount deals are a limited-time offer.
 
 ## Skillshare Coupons: Get 20% OFF New Member
 
