@@ -41,7 +41,7 @@ As a student, you can benefit from Skillshare’s [35% student discount](https:/
 Skillshare promo codes that provide a [25% discount](https://bit.ly/4dijtWD) on memberships. These coupon codes are a fantastic way to save on the platform’s offerings, whether you’re a new or existing member. Keep an eye out for these deals and take advantage of them to access high-quality online classes at a reduced cost.
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcvR9RPlPDN4zEjxGf3HmqgRfHQ2n5n4K7nUqbX7xmTVe9XN_0-5eS5a9GtxFEh0x7fkhJ5_OTnXSNv6D4BzdFpKJPO5quCbT-xQQsOZRUuljeMQxuWqmFJwoxYJj8MGBMZfw8C?key=9UrNk96LgJ7vOb-nZ7cujWsC)](https://bit.ly/4dijtWD)
 
-## SkillShare Discount Code To Get 20% Off
+## SkillShare Discount Code To Get 20% Off (CREATE20)
 
 Now, get [20% off](https://bit.ly/4dijtWD) using this Skillshare discount code, this offer applies to both the annual and monthly plans and you can use it while checking out any course on the entire website.
 
