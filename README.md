@@ -2,7 +2,7 @@
 
 Looking for [Skillshare coupons](https://bit.ly/4dijtWD) in 2025?
 
-Now, you can get Skillshare with a flat [50% discount](https://yupbeat.com/deals/teachable-coupon-code/). Why pay in full price when you can get it for half the price, with our Skillshare coupon codes and discount offers?
+Now, you can get Skillshare with a flat [50% discount](https://skillscoupon.com/). Why pay in full price when you can get it for half the price, with our Skillshare coupon codes and discount offers?
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdEFC-75v4EkLZKG3XVRCqMhiJThwszV9lb06KlAgJiYf9kUXHeOjrwov5YUP_aHr7icD0ymcFrAh8EcydRY5nKCbnxQnf6efJOq9sKl3JpUVzJ6cK8NdhwpkQyL_mLYLANyqnpTA?key=9UrNk96LgJ7vOb-nZ7cujWsC)](https://bit.ly/4dijtWD)
 
